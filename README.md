@@ -6,7 +6,7 @@
   
 - 💬 Ask me about **anything!**  
   
-- 📫 How to reach me **musa.beytekin1@gmail.com**  
+- 📫 How to reach me **musabeytekin497@gmail.com**  
   
 <h3 align="left">Connect with me:</h3>  
 <p align="left">  
